@@ -1,4 +1,4 @@
-README for Step 3 – dynamical-subject-step3.pdf
+README for Step 3 - dynamical-subject-step3.pdf
 
 Step 3: Transferable Subject - Conceptual Manual
 Author: J.G. Urquizu O.
